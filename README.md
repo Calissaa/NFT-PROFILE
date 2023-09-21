@@ -1,4 +1,4 @@
-# NFT PROFILE PICTURES
+# NFT PROFILES PICTURES
 
 - 0xlissa (1).jpg
 - 0xlissa (2).jpg
